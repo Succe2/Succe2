@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...induastries
 - 📫 How to reach me ...joshuasuccess254@gmail.com
 - 😄 Pronouns: ...he 
-- ⚡ Fun fact: ...i love being muself
+- ⚡ Fun fact: ...i love being myself
 
 <!---
 Succe2/Succe2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
